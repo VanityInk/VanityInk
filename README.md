@@ -1,6 +1,6 @@
 **I'm a pyscho, PSCHYO TEDDY**
 
-![image](https://github.com/M4ngr0v3Tr33/M4ngr0v3Tr33/assets/77180518/19b85424-6435-4d62-b846-11ba207194d6)
+![image](https://github.com/VanityInk/VanityInk/assets/77180518/0e331b4c-36a0-42cf-89a6-cff7f542f1e9)
 
 
 💀:` ◟ ^.ᆽ.^= ∫ (Vanity)ᵎᵎ ◞ (^⁠ω⁠^⁠）
@@ -19,4 +19,4 @@
 ㅤ
 ㅤ◁ㅤ ❚❚ ㅤ▷
 
-![image](https://github.com/M4ngr0v3Tr33/M4ngr0v3Tr33/assets/77180518/8324c222-f688-41a4-8486-f261246bcd52)
+![image](https://github.com/VanityInk/VanityInk/assets/77180518/a1deac33-c59d-4316-9bab-83e6e7b66037)
