@@ -3,7 +3,7 @@
 ![image](https://github.com/VanityInk/VanityInk/assets/77180518/0e331b4c-36a0-42cf-89a6-cff7f542f1e9)
 
 
-💀:` ◟ ^.ᆽ.^= ∫ (Vanity)ᵎᵎ ◞ (^⁠ω⁠^⁠）
+💀:` ◟ ^.ᆽ.^= ∫ (Choco)ᵎᵎ ◞ (^⁠ω⁠^⁠）
 
 ◖(prns: Any) ﹪ Parent of 7 , `🐻`
 
