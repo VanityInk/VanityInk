@@ -3,9 +3,9 @@
 ![image](https://github.com/VanityInk/VanityInk/assets/77180518/0e331b4c-36a0-42cf-89a6-cff7f542f1e9)
 
 
-💀:` ◟ ^.ᆽ.^= ∫ (Choco)ᵎᵎ ◞ (^⁠ω⁠^⁠）
+💀:` ◟ ^.ᆽ.^= ∫ (𝙑𝙞𝙫𝙞)ᵎᵎ ◞ (^⁠ω⁠^⁠）
 
-◖(prns: Any) ﹪ Parent of 7 , `🐻`
+◖(prns: Any) ﹪ I am 18+ , `🐻`
 
 `🧸` ⧽ () ⧼ ⟡
 
